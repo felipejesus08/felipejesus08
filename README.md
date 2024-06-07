@@ -1,16 +1,14 @@
-## Hi there 👋
+## Hi there Seja bem vindo ao meu perfil 💙
 
-<!--
-**felipejesus08/felipejesus08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Felipe Jesus Santos
 
-Here are some ideas to get you started:
+- Sou estudante
+- Gosto de apostas
+- Egosto muito de marcas
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Você pode entrar en contato comigo 📧
+felipedejesussantos467@gmail.com
+
+@ofelipe_4m
+
+![](https://media1.tenor.com/m/cLjA_QYEHesAAAAC/grana.gif)
