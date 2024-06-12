@@ -4,7 +4,7 @@ Meu nome é Felipe Jesus Santos
 
 - Sou estudante
 - Gosto de apostas
-- gosto de marcas
+- Gosto de marcas
 
 ### Você pode entrar en contato comigo 📧
 felipedejesussantos467@gmail.com
